@@ -1,9 +1,9 @@
-[instagram](instagram.com/rafaelstfns)
+[instagram](https://instagram.com/rafaelstfns)
 
-[whatsapp](wa.me/6289531036170)
+[whatsapp](https://wa.me/6289531036170)
 
-[telegram](t.me.rafaelstfns)
+[telegram](https://t.me.rafaelstfns)
 
-[github](github.com/rafaelstfns)
+[github](https://github.com/rafaelstfns)
 
-[ngl](ngl.link/rafaelstfns)
+[ngl](https://ngl.link/rafaelstfns)
